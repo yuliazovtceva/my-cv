@@ -1,11 +1,12 @@
 # Азовцева Юлия
 
-### Инженер по тестированию
+_Инженер по тестированию_ <br>
 
 
 
 
-
+[Email](mailto:yulkiin@ya.ru)
+[Telegram](https://t.me/azovceva)
 
 
 
